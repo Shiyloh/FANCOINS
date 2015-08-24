@@ -1,0 +1,2 @@
+# FANCOINS
+Speculative Coins
